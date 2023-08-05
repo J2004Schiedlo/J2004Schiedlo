@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @J2004Schiedlo
+- 👀 I’m interested in software development and advertising
+- 🌱 I’m currently learning Communications and Audio Enginering
+- 📫 How to reach me (Schiedlo@p85media.com)
